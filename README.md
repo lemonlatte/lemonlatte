@@ -1,1 +1,1 @@
-I am JimJim. I write codes. 😁
+I am JimJim. I write code. 😁
